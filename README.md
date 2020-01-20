@@ -1,2 +1,0 @@
-# land
-landing shop laptop
